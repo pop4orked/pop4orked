@@ -1,4 +1,4 @@
-I’m @pop4orked - howzit!
+I’m @pop4orked - aspiring dev 
 
 
 <!---
